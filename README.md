@@ -1,1 +1,2 @@
-# Jazz-Tos
+# TOS FOR JAZZ
+https://discord.com/tos
