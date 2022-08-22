@@ -1,2 +1,2 @@
-# TOS FOR JAZZ
+# TOS FOR Astroz Prime
 https://discord.com/tos
