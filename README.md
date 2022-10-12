@@ -1,2 +1,2 @@
-# TOS FOR Astroz Prime
+# TOS FOR Cerium
 https://discord.com/tos
